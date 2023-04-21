@@ -1,1 +1,1 @@
-# technix.github.io
+# technixyt.github.io
