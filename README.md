@@ -1,1 +1,1 @@
-# TylerKenyon.github.io
+# technix.github.io
